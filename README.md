@@ -27,4 +27,4 @@ Sauce du Chef:
 4. put on cookies after they cooled down for a bit
 5. let the sauce dry up
 
-TO BE EATEN THE NEXT DAY, AND SHARED WITH MR. PATRICK FREY (and any nice gril that happens to be in the office that day)
+TO BE EATEN THE NEXT DAY, AND SHARED WITH MR. PATRICK FREY (and any nice girl that happens to be in the office that day)
