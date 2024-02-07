@@ -28,3 +28,4 @@ Sauce du Chef:
 5. let the sauce dry up
 
 TO BE EATEN THE NEXT DAY, AND SHARED WITH MR. PATRICK FREY (and any nice girl that happens to be in the office that day)
+NEW REGULATION: FEB 2024: GUESTS ARE ALLLOWED ONLY 1 PER DAY
